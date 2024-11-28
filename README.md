@@ -20,7 +20,7 @@ Jelajahi karya terbaru dan keterampilan saya dalam dunia pengembangan perangkat 
 
 Berikut adalah beberapa tampilan halaman website :
 
-![proyek80](https://github.com/user-attachments/assets/35d63d8d-de06-42b9-a907-006a9f7e122b)
+![proyek85](https://github.com/user-attachments/assets/270a708f-1465-4e34-a893-897a9c0fb578)
 
 ## 📬 Kontak
 
